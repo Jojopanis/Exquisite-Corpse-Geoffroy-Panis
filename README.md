@@ -6,6 +6,11 @@ unfortunately, Kyllian was working with a windows software and had to experience
 he decided that it was fcked up and download linux. 
 
 But with pain and blood and suffering and lots of documentations reading 
+
+It can be pretty diificult to see exactly what to do
+so he decided to download chrome to get back all his accounts thinking the pain and blood from windows was over
+but it was only starting...
+
 It can be pretty ~
 
 the start is already good
