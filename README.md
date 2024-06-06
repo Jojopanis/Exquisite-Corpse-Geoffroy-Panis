@@ -7,3 +7,5 @@ he decided that it was fcked up and download linux.
 
 But with pain and blood and suffering and lots of documentations reading 
 It can be pretty ~
+
+the start is already good
